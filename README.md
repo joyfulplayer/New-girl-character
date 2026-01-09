@@ -20,3 +20,18 @@ if u cant see, her name is Straw Berri Cǎoméi..shes an adult, no confirmed age
 shes best friends with choco...was one of the people that actually blamed icey for choco's death.
 
 ill update her lore later its almost 3 am..
+
+
+OK, HERES THE UPDATE!!!!
+
+nickname; Berri
+
+"shes best friends with choco...was one of the people that actually blamed icey for choco's death" and held a grudge against icey.
+
+extra; icey tried apologizing to berri in any type of way he could think of but still couldnt get forgiven.
+
+extra 2; berri was also friends with icey but cut contact with him after choco's death.
+
+extra lore for both of those 3; they were orphans so they didnt get to see their parents' faces. got abandoned and sent straight to an orphanage when they were born.
+
+im thinking about adding the caregiver.
